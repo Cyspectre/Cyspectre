@@ -1,0 +1,4 @@
+- Hi, I’m @Cyspectre
+- I’m interested in anime, nerd and geek stuff
+- I’m currently learning ethical hacking
+- I'm Brazilian     :)
